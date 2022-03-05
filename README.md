@@ -327,6 +327,6 @@
 
 然后甘女士问他，你记住九字真言了吗？他说：“记住了，记住了，是‘法轮大法好！真善忍好！’谢谢，谢谢！”
 
-原視頻 http://www.minghui.org/mh/articles/2021/9/2/大陆官员遗孀泪谢-早遇到你们就好了-430350.html
+原文 http://www.minghui.org/mh/articles/2021/9/2/大陆官员遗孀泪谢-早遇到你们就好了-430350.html
 
 ## [返回主頁](https://git.io/Js3EY)
